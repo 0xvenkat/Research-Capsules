@@ -1,4 +1,5 @@
 # SUI Breakout Imminent
+##### Published Sep 2nd, 2025
 $SUI has once again held its ground at a key support zone, the third successful defense of this level. A clear sign that buyers continue to step in with conviction. 
 
 1W chart shows the formation of a textbook Ascending Triangle. The longer price holds under resistance, the more energy builds for the eventual breakout.
